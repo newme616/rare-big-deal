@@ -206,7 +206,7 @@ It's free & open-source. Enjoy! 🚀
 
 | | Name | Description | Deal | Expires on date |
 | - | - | - | - | - |
-| ⭐ | Be the first to add a deal in this category! | | | |
+| 🦊 | [Oscar Stories](https://wwww.oscarstories.com) | Create personalized bedtime stories for your kids with AI | Get one story more for free when you sign up on Black Friday |2025-12-01 |
 
 
 ### Productivity
@@ -342,7 +342,7 @@ It's free & open-source. Enjoy! 🚀
 
 | | Name | Description | Deal | Expires on date |
 | - | - | - | - | - |
-| ⭐ | [Subreddit Traffic Tracker](https://subreddittraffic.live/) | Reach maximum Reddit traffic by finding the best times to post. Track 400+ subreddits activity and optimize your posting schedule to increase your brand awareness and traffic. | 30% OFF lifetime plan with code **BLACKFRIDAY2025** | |
+| ⭐ | Be the first to add a deal in this category! | | | |
 
 
 ### Website Builders
@@ -363,7 +363,7 @@ It's free & open-source. Enjoy! 🚀
 
 | | Name | Description | Deal | Expires on date |
 | - | - | - | - | - |
-| ⭐ | Be the first to add a deal in this category! | | | |
+| 📊   | [Branding5](https://branding5.com)| Define your brand and optimize your marketing strategy in just minutes with AI. | **50% OFF** with code **BLACKFRIDAY** | 2025-11-30 |
 
 
 [⬆️ All categories](#table-of-contents)
